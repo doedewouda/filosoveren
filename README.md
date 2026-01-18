@@ -1,0 +1,2 @@
+# filosoveren
+een denker
